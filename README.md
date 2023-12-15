@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sharkaw also known as Suvi Lindholm
-- 👀 I’m interested in coding and web design, graphic design, data visualization and sewing for exsample.
+- 👀 I’m interested in coding and web design, graphic design, data visualization and sewing for example.
 - 🌱 I’m currently learning more coding.
 - 💞️ I’m looking to collaborate on interesting projects.
 - 📫 How to reach me : by email suvi.p.lindholm (a) gmail.com
